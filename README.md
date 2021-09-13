@@ -2,6 +2,6 @@
 
 - 🌱 I’m currently learning how to market and improve my skills
 - 💬 Ask me about literally anything
-- 📫 How to reach me: [email](ctscofield@gmail.com) or [LinkedIn](https://www.linkedin.com/in/cory-scofield)
+- 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/cory-scofield)
 - ⚡ Fun fact: I played in an Overwatch intramural league
 
